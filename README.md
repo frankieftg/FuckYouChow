@@ -1,2 +1,0 @@
-# FuckYouChow
-Congratulations. 😊😙
